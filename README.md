@@ -11,7 +11,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀ ⠀⠀⠀⠀ㅤ<sub>“a story that begins with love must also end with love.”</sub> 
   
  
- ⠀⠀⠀ ⠀⠀⠀⠀⠀  ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ <sub> sx268    rluai⠀⠀⠀isfj⠀⠀⠀evfl⠀⠀⠀& ⠀⠀⠀mel⠀⠀⠀chol<sub>   
+ ⠀⠀⠀ ⠀⠀⠀⠀⠀  ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ <sub> sx268    rluai⠀⠀⠀infj⠀⠀⠀evfl⠀⠀⠀& ⠀⠀⠀mel⠀⠀⠀san<sub>   
  
    ⠀⠀⠀ ⠀⠀⠀⠀⠀  ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀<sub>genderqueer⠀⠀⠀aroace⠀⠀⠀lesbian⠀⠀⠀⠀⠀any⠀⠀⠀prns
 
